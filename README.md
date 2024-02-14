@@ -7,5 +7,3 @@ Uma frase que me define:
 
 📚 Corporate Analyst
 🎓 Information Technology Management Course (IFPR)
-
-Check out my https://www.linkedin.com/in/welington-ramos-8693271b0/
